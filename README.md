@@ -36,5 +36,3 @@ we hope you enjoyed reading this.!
 
 ~>W<~
 
-<img width="640" height="648" alt="Screenshot 2026-01-17 235331" src="https://github.com/user-attachments/assets/3b64350d-a6c0-41f2-ac9e-9349c2f1d324" />
-
