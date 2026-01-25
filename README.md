@@ -35,12 +35,10 @@ we hope you enjoyed reading this.!
 
 
 ~>W<~
-<img width="428" height="363" alt="Screenshot 2026-01-19 235225" src="https://github.com/user-attachments/assets/dfbfeb0d-d61b-46d6-995d-e00eba9b0a86" />
+
 
 
 things ABOUT  us , ! :
-
-a system,
 
 nonbinary and genderfluid/ yes it is possible. /
 
