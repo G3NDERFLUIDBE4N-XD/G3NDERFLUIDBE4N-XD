@@ -42,7 +42,7 @@ things ABOUT  us , ! :
 
 nonbinary and genderfluid/ yes it is possible. /
 
-likes chance ,elliot and scag alot , no not like a ship. just 3 characters we like ever much jus to clarify.
+likes pursuer , killdroid , chance ,elliot and scag alot , no not like a ship. just 3 characters we like ever much jus to clarify.
 sometimes apears to be clingy or jealious.
 
 sometimes apears to be sad, that means either i want comfort from friends or from both strangers and friends.
